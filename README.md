@@ -223,9 +223,18 @@ ends; it is a lifelong process of becoming-with-others.
 References 
 
 Bateson, M. (1979). Mind and Nature. Bruner, J. (1990). Acts of Meaning. Carugati, F., & 
-
 Selleri, P. (1996). Psicologia Culturale dello Sviluppo. Fogel, A. (1993). Developing Through 
-
 Relationships. Fuchs, T. (2013). The Phenomenology of Affectivity. Lurija, A. R. (1976). 
+Cognitive Development. Merleau-Ponty, M. (1945). Phenomenology of Perception. Trevarthen, 
+C. (1998). Intersubjectivity and the Child. Vygotsky, L. S. (1978). Mind in Society. Wertsch, J. 
+(1991). Voices of the Mind. 
 
-Cognitive Development. Merleau-Ponty, M. (1945). Phenomenology of Perception. Trevarthen,
+© 2026 Dr. Vincenzo Bumbalo. All rights reserved. This work, including all concepts, theoretical 
+formulations, terminology, structural models, clinical interpretations, and original ideas 
+contained herein, is the exclusive intellectual property of Dr. Vincenzo Bumbalo. No part of this 
+publication may be reproduced, distributed, stored, cited, referenced, transmitted, or adapted 
+in any form or by any means — including electronic, mechanical, digital, or derivative formats — 
+without the author’s explicit written permission. Unauthorized use, quotation of proprietary 
+constructs, theoretical appropriation, or creation of derivative works based on the Bumbalo 
+Model or any related formulations is strictly prohibited and constitutes a violation of 
+international copyright law. All rights strictly reserved.
